@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **pratham5685@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1WintWoy_DMpnNimN4J0FUcK8UyZS2eZC/view?usp=sharing](https://drive.google.com/file/d/1WintWoy_DMpnNimN4J0FUcK8UyZS2eZC/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1WintWoy_DMpnNimN4J0FUcK8UyZS2eZC/view?usp=sharing](http://bit.ly/3Qs5Vx4)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
